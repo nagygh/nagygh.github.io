@@ -1,0 +1,2 @@
+# nagygh.github.io
+trainig
